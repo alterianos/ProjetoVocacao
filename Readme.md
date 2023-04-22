@@ -1,0 +1,1 @@
+Esse repositório é dedicado ao vocação analítica 🚀
